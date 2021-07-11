@@ -6,4 +6,4 @@ Lim Kwan Ziv,
 Lim Teng Teng,
 Cheah Si Ying,
 Gan Kah Xiang,
-Tan Hou Ying
+Tan Hou Yin
